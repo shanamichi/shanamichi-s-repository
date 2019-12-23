@@ -1,0 +1,1 @@
+# shanamichi-s-repository
